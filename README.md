@@ -15,3 +15,6 @@ If you’re interested in seeing more context and discussion about this situatio
 At the end of the day, having access to the sources allows you to learn, improve, and create your own projects — and that’s where the real value lies.
 
 Enjoy.
+
+
+PS: He presents himself as a “god” of BO3, but in reality he’s just someone who was given excessive access to tools and control over the game, and is now exploiting that position.
